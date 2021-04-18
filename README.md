@@ -1,1 +1,1 @@
-![](finans.mp4)
+![](myFile.gif)
