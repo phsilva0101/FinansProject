@@ -1,1 +1,1 @@
-![](assets/finans.mp4)
+![](https://media.giphy.com/media/aRQ02mxKuVfaVYnHGm/giphy.gif)
